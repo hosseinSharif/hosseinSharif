@@ -8,9 +8,8 @@
 
 "In the name of God the Merciful"
 
-Imam Ali, peace be upon him:
-
-When he was asked about the greatest of the major sins: security from God’s deception, despair from God’s spirit, and despair from God’s mercy.
+Imam Ali, peace be upon him, when he was asked about the greatest of the major sins:
+"security from God’s deception, despair from God’s spirit, and despair from God’s mercy."
 
 پس هیچ گاه از رحمت خداوند ناامید مباش و همواره سعی در جبران گناهان داشته باش ای عزیز!
 
